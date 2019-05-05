@@ -16,11 +16,11 @@ La logique des règles canoniques voudrait qu’une jeune Eglise soit, un jour o
 
 Dans notre cas, nous nous trouvons confrontés à un problème sans précédent, dans la mesure où notre Archevêché, d’origine et de tradition russes, certes, n’en est pas moins devenu aujourd’hui une entité ecclésiale plurinationale et désormais enracinée localement, dans neuf pays européens, sans autre « Mère » que l’Eglise Orthodoxe tout entière, ainsi appelée à l’universalité et à l’unité. 
 
-Notre autonomie et notre indépendance, humble et ouverte, surmontant toute nostalgie et la peur de l’avenir, devrait susciter une sollicitude paternelle et une neutralité bienveillante de la part de l’ensemble des Patriarcats Orthodoxes, auxquels nous exprimons notre profond respect, notre soutien indéfectible et notre gratitude. 
+Notre autonomie et notre indépendance, humble et ouverte, surmontant toute nostalgie et la peur de l’avenir, devraient susciter une sollicitude paternelle et une neutralité bienveillante de la part de l’ensemble des Patriarcats Orthodoxes, auxquels nous exprimons notre profond respect, notre soutien indéfectible et notre gratitude. 
 
 Dans la mesure où nous serons capables de demeurer tous ensemble fermement unis, conscients de notre vocation particulière en Europe Occidentale, nous serons reconnus et assurés d’obtenir les participations nécessaires aux sacres épiscopaux, sans aucune ingérence extérieure dans l’élection de nos candidats.
 
-En profitant de notre indépendance et de notre autonomie, notre Archevêché, pourra plutôt servir de modeste point de référence, en constituant autant que faire se peut un espace de réelle liberté conciliaire, et où, éventuellement, les Églises en conflit pourront trouver un lieu commun de concélébration, de dialogue et de paix. Au nom de l’amour de Dieu, espérons que notre identité et notre indépendance nous soient donnés et garantis.
+En profitant de notre indépendance et de notre autonomie, notre Archevêché, pourra plutôt servir de modeste point de référence, en constituant autant que faire se peut un espace de réelle liberté conciliaire, et où, éventuellement, les Églises en conflit pourront trouver un lieu commun de concélébration, de dialogue et de paix. Au nom de l’amour de Dieu, espérons que notre identité et notre indépendance nous soient données et garanties.
 
 ### Pâques 2019
 
