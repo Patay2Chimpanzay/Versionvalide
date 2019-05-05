@@ -57,8 +57,7 @@ Taking advantage of our independence and our autonomy, our Archdiocese can serve
 
 **Pour devenir cosignataire, merci de vous rendre sur [ce lien](https://forms.gle/wStEbEetpCHoVRrp6).**
 
-_**To become a co-signer, please visit [this link] (https://forms.gle/wStEbEetpCHoVRrp6).**_
-
+_**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCHoVRrp6).**_
 
 ### p.Wladimir Yagello
 ### Barbara Yagello
