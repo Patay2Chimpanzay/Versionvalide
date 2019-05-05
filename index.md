@@ -49,7 +49,6 @@ To the degree that we will be able to remain firmly united and conscious of our 
 
 Taking advantage of our independence and our autonomy, our Archdiocese can serve as a modest point of reference in creating to the degree possible a space of real conciliar freedom where eventually any church in conflict can find a common place of concelebration, dialogue and peace. In the name of  God’s love we hope that our identity and our independence will be given us and guaranteed.   
 
-### Easter 2019
 
 
 ## Signataires (liste ouverte)
